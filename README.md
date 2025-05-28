@@ -1,0 +1,1 @@
+# Taş Kağıt Makas
